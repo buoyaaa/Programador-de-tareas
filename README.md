@@ -18,7 +18,7 @@
 ![image](https://github.com/user-attachments/assets/3199a0ac-2a9f-409a-b0f7-7645d15e2da8)
 ![image](https://github.com/user-attachments/assets/4d0bfb0e-19dc-41b4-8322-ca4f4287bd98)
 ![image](https://github.com/user-attachments/assets/ea08f0bf-d34c-4993-9c0c-c3b96835737b)
-![image](https://github.com/user-attachments/assets/f697fc0d-6564-46fd-b45c-ab2c3729d6d7)
+
 
 ## Activitat 3.
 
@@ -28,6 +28,8 @@
 ![image](https://github.com/user-attachments/assets/fa2b9837-4257-4177-9d50-ac500761c7e1)
 ![image](https://github.com/user-attachments/assets/bfc5dec6-1a30-45d2-8ccb-1161ce83eda8)
 ![image](https://github.com/user-attachments/assets/e7a49677-ebf9-4d84-a214-7115f882e264)
+![image](https://github.com/user-attachments/assets/b71205f5-5afd-4a7f-8d11-ea3fde05fa6b)
+![image](https://github.com/user-attachments/assets/799efc28-9380-4b75-a032-a2033d1041c5)
 
 ## Activitat 4.
 
